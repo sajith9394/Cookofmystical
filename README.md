@@ -1,4 +1,6 @@
-# Cookofmystical
+# POPCORN
+![image](https://github.com/sajith9394/Cookofmystical/assets/160387497/7ddbeff0-a1bf-40cc-bded-9db7c5b10881)
+
 
 Crunchy Delight: Exploring the Irresistible World of Popcorn
 
